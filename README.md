@@ -1,4 +1,4 @@
-<p align="center"><img alt="zfsjlll的自留地" src="https://i.328888.xyz/2023/03/26/iDp7T3.png"></p><h2 align="center">
+<p align="center"><img alt="zfsjlll的自留地" src="https://cdn.staticaly.com/gh/conquer1the2world3/zfsjlll-blog@main/Pictures/1684813133593.42n2d7xmqns0.webp"></p><h2 align="center">
 zfsjlll的自留地
 </h2>
 
